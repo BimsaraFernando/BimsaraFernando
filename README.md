@@ -1,4 +1,4 @@
-### Hi there, Welcome to my profile 👋
+### Hi there, welcome to my profile 👋
 ![](https://komarev.com/ghpvc/?username=bimsarafernando&label=PROFILE+VISITS)
 <br>
 
